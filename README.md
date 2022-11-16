@@ -1,2 +1,2 @@
-# freecheats.github.io
+# freecheetos.ml
 yes this is skidded
